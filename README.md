@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ahmeedhassanali@outlook.com**
 
-- 📄 My Resume (https://drive.google.com/file/d/1g6McPrnnl8NVHrCyKRBxg8HnjeWNPdKb/view?usp=sharing)
+- 📄 My Resume (https://drive.google.com/file/d/1K7D9b-B4AoPKXH3Zd9WX7KQ-poCm40v5/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
